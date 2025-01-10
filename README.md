@@ -1,0 +1,1 @@
+# Mobilnets-ile-meyve-ve-sebze-tan-t-lmas-versiyon-2
